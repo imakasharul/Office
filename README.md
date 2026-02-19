@@ -6,9 +6,9 @@ webdeveloper ( season 7 21 26) : https://www.dropbox.com/scl/fo/jfl5b7ziim9z804n
 
 akasharul2403  season 8 ( 1 - 12)  : https://www.dropbox.com/scl/fo/us9n1jmbo3wxmyyw31pla/AIIU0T1Q98ZuKOzk5TpTa2Y?rlkey=evv07gd5ndbifhvuw2p15zlup&st=qxku7sle&dl=0
 
-season 8 (13 ): https://www.dropbox.com/scl/fo/9huu9q83sdvy5hv3cqdcr/AMF0ClMQdDgxPPa5muTPVis?rlkey=fxkx91e790bhmrgq2f88g0e13&st=ssmm134p&dl=0
+season 8 (13 21 ): https://www.dropbox.com/scl/fo/9huu9q83sdvy5hv3cqdcr/AMF0ClMQdDgxPPa5muTPVis?rlkey=fxkx91e790bhmrgq2f88g0e13&st=ssmm134p&dl=0
 
-season 8  : https://www.dropbox.com/scl/fo/67hllyg1czqazso57z8dp/ANJO1mRzzp7CwmrcvnVPmSU?rlkey=3h8ejn19bx4us1ikyedqwps9q&st=8sq44mxb&dl=0
+season 8 (21 26) : https://www.dropbox.com/scl/fo/67hllyg1czqazso57z8dp/ANJO1mRzzp7CwmrcvnVPmSU?rlkey=3h8ejn19bx4us1ikyedqwps9q&st=8sq44mxb&dl=0
 
 
 
