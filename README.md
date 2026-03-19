@@ -11,5 +11,8 @@ season 8 (13 21 ): https://www.dropbox.com/scl/fo/9huu9q83sdvy5hv3cqdcr/AMF0ClMQ
 season 8 (21 26) : https://www.dropbox.com/scl/fo/67hllyg1czqazso57z8dp/ANJO1mRzzp7CwmrcvnVPmSU?rlkey=3h8ejn19bx4us1ikyedqwps9q&st=8sq44mxb&dl=0
 
 
+chess : https://itzwebdeveloper.github.io/chess/
+
+
 
 
