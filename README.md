@@ -6,3 +6,5 @@ https://docs.google.com/document/d/1OVQfWS27xD78ySNQJajD-LyayeJ4ggLz7KntkRjxLTw/
 
 
 https://drive.google.com/drive/folders/1lQaK7doXHZKN7id7cJcoWbYl2jFdHJ0Y
+
+aws : https://www.youtube.com/watch?v=yChiWUxP_2M&list=PLL1ih-rtU13sj0nEqHndqhSVxhZ5k_qSh
