@@ -11,3 +11,5 @@ aws : https://www.youtube.com/watch?v=yChiWUxP_2M&list=PLL1ih-rtU13sj0nEqHndqhSV
 
 
 https://kananinirav.com/practice-exam/exams.html
+
+https://drive.google.com/drive/folders/1Uv-g7FEoHLrkLRB17tQtuKin3ptjuve0
