@@ -13,3 +13,6 @@ aws : https://www.youtube.com/watch?v=yChiWUxP_2M&list=PLL1ih-rtU13sj0nEqHndqhSV
 https://kananinirav.com/practice-exam/exams.html
 
 https://drive.google.com/drive/folders/1Uv-g7FEoHLrkLRB17tQtuKin3ptjuve0
+
+
+https://drive.google.com/drive/folders/1OThGOMb5-QOFNs1nNJj0pe84M6bo55qz
